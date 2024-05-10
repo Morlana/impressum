@@ -17,5 +17,5 @@ Online-Impressum.de <br>
 Europaring 90 <br>
 53757 Sankt Augustin <br>
 Telefon: +49 1522 2397390 <br>
-E-Mail: kosmos@morlana.net <br>
+E-Mail: contact@morlana.net <br>
 WhatsApp: +49 1522 2397390
